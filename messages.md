@@ -34,3 +34,10 @@ without getting burn because they mastered the technique of self control.**
 > - [x] Master Self Control
 > - [x] Don't be like insects
 > - [x] Be Intelligent
+
+> ## Fake
+> **Most of popular porn stars get paid large amount of money to do fake sexual
+act in front of camera and people those who watch porn for masterbation think 
+everythig is real in video. Most of porn star do not even enjoy sex, they just 
+do acting on camera to earn money. So in porn everything is fake. Porn industry 
+just want destroy young people's life.**
