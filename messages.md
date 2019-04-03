@@ -11,7 +11,9 @@ So do not watch porn and save your brain.**<br>
 > - [x] Concentrate Properly
 > - [x] Stop Watching Porn
 > - [x] Stop Masturbation
-<br><br><br>
+
+<br><br>
+
 > ## Old Age Pain
 > **Masturbation and too much sex, reduces the synovial fluid between bones, 
 which cause increase of friction between bones. Because of lack of synovial
