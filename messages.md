@@ -1,17 +1,17 @@
 > ## Save Brain
-> **Porn Addiction can disturb ability to concentrate
-and person not able to concentrate on anything properly. 
-Continuously watching porn videos fills mind with 
-useless erotic material and 
-this material keep disturbing mind for 
-longer period of time. 
-Sexual thoughts keep spinning in mind whole day. 
-So do not watch porn and save your brain.**
+> **Porn Addiction can disturb ability to concentrate<br>
+and person not able to concentrate on anything properly.<br>
+Continuously watching porn videos fills mind with <br>
+useless erotic material and <br>
+this material keep disturbing mind for <br>
+longer period of time. <br>
+Sexual thoughts keep spinning in mind whole day. <br>
+So do not watch porn and save your brain.**<br>
 > - [x] Save Brain
 > - [x] Concentrate Properly
 > - [x] Stop Watching Porn
 > - [x] Stop Masturbation
-
+<br><br><br>
 > ## Old Age Pain
 > **Masturbation and too much sex, reduces the synovial fluid between bones, 
 which cause increase of friction between bones. Because of lack of synovial
